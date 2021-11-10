@@ -1,5 +1,8 @@
-Drill with declensions in Homeric Greek: the things they carried
+The things they carried to Ilium: a brutal and senseless workout on the declensions
 ================================================================
+
+Beware. In this recording, Bronze Age hairless primates will use tools, including
+tools of violence, to drill you on the declensions in Homeric Greek.
 
 This is intended for review and reinforcement, not initial learning.
 The recording doesn't make any attempt to teach you the declensions from scratch
